@@ -2,7 +2,7 @@
 
 -   This is my account linked to Card Advantage Games
 -   
-- 👀 I’m interested in ... girls
+- 👀 I’m interested in ... most everything
 - 🌱 I’m currently learning ... how to make a rouglike deck-builder
 - 💞️ I’m looking to collaborate on ... Blood Price (working title)
 - 📫 How to reach me ... Discord, email.
